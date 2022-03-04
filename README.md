@@ -1,1 +1,0 @@
-# fsrichard.github.io
